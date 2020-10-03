@@ -1,0 +1,1 @@
+Common ingredients include buttermilk, butter, cocoa, vinegar, and flour. Beetroot or red food coloring may be used for the color.
